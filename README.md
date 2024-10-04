@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ryanadiyantara
-- 📫 Reach me on instagram: ryan.adiyantara
+- 📫 Reach me on instagram: ryandyntr
 
 
 <!---
